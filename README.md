@@ -1,0 +1,5 @@
+-Hi, I’m Provvidenza Ramiro
+- I’m interested in a little bit of everything
+- I’m currently learning whatever Carlassara wants
+- I’m looking to collaborate on everything that Carlassara makes me collaborate on
+- How to reach me: Ramiprovvidenza@gmail.com
